@@ -1,10 +1,10 @@
 # MeGa-RAT-Pack
 Remote Administration Tools &amp; Remote access trojans : MEGA RAT PACK by B®AGA
-<br>
+<br><br>
 https://i.ibb.co/RDd28tD/rat-list.png
-<br>
+<br><br>
 <b>
-!_ANDROID  Free Download <br>
+!_ANDROID ( Spy Note 5 ) Free Download <br>
 888 RAT Private - Cracked  Free Download <br>
 888_RAT_1.0.8_O _ Cracked  Free Download <br>
 CinaRAT  Free Download <br>
